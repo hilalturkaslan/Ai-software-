@@ -1,1 +1,1 @@
-app done ai prompt
+app done ai prompt case study
