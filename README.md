@@ -1,1 +1,1 @@
-ai done prompt for is a app sample case study
+ai done prompt for is a then app sample case study
