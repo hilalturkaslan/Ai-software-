@@ -1,1 +1,1 @@
-ai make for is a software app sample case study
+ai made for is a software app sample case study
