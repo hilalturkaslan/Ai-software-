@@ -1,1 +1,1 @@
-Ai for is a done make inside software app study case
+Ai for is a done make inside software app study case. 
